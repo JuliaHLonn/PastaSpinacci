@@ -6,7 +6,8 @@
 2. Spenat
 3. Lök, vitlök
 4. creme fraiche
-5. fetaost
+5. fetaost  
 Hacka och stek **lök och vitlök**  
+Stek *spenat* koka *pasta*
 
 
