@@ -7,3 +7,6 @@
 3. Lök, vitlök
 4. creme fraiche
 5. fetaost
+Hacka och stek **lök och vitlök**  
+
+
